@@ -3,7 +3,7 @@
 Get FREE Diamonds and Points with our new Mobile Legends Cheats. 100% Working and No Survey (Updated 2018). Mobile Legends Hack Mod APK + iPA Online! Generate unlimited Diamonds and Points in game by using our Mobile Legends hack tool. Our Mobile Legends Hack will work on PC, Android and iOS. root or jailbreak not required. The new Mobile Legends hack is out, with the cheats being compiled in an online generator, users are able to generate free, unlimited Diamonds and Points.
 </b>
 <br><br>
-<b><a href="https://t.co/WJO6SJjROX#mobilegendscheat">CLICK HERE TO HACK Mobile Legends</a>
+<b><a href="https://t.co/WJO6SJjROX#mobilegendscheat">CLICK HERE TO HACK MOBILE LEGENDS</a>
 <br><br>
 
 <br>
